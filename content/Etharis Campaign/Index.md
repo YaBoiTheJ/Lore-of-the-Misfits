@@ -4,9 +4,7 @@ longform:
   title: Testing DND Host
   workflow: Default Workflow
   sceneFolder: /
-  scenes:
-    - Frog
-    - Introduction
+  scenes: []
   sceneTemplate: Templates/Basic.md
   ignoredFiles: []
 ---

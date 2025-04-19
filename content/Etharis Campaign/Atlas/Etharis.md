@@ -1,3 +1,10 @@
+---
+title: "Lands of Etharis"
+draft: false
+tags:
+  - 
+---
+
 > “Only a few warriors remain. Defenders of humanity against the horrors of the dark. Their numbers dwindle with every new moon. You see, this world belongs to the darkness, and darkness will not give it up easily.”
 
 FROM ITS DEEP AND FORBIDDING FORESTS, where horrible beasts lurk, to the hulking and impenetrable mountains ranges where lost legacies lie, the landscape of Etharis is formidable. However, the true monsters of this land can be found in the degenerating cities of old, where humanity clings to survival.
