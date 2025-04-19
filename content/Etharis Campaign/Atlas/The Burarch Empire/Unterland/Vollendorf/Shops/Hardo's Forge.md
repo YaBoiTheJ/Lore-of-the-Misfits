@@ -1,3 +1,10 @@
+---
+title: Vollendorf Museum
+draft: true
+tags:
+  - example-tag
+---
+
 The workshop of a male human blacksmith named [[#Hardo]], known for his vast knowledge of dwarven runes and glyphs.
 
 

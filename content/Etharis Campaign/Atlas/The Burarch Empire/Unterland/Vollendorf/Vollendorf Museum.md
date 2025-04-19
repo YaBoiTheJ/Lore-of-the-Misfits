@@ -1,3 +1,10 @@
+---
+title: Vollendorf Museum
+draft: true
+tags:
+  - example-tag
+---
+
 [[Vollendorf]]
 write more about this and include the coffee shop lol
 
