@@ -1,1 +1,0 @@
-A fishing town twenty miles north of the [[Fort Kentigern]].

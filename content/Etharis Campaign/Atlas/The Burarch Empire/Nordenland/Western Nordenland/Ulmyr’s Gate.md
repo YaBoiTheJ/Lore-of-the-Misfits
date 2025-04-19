@@ -1,6 +1,0 @@
-## History 
-Founded by a group of ambitious wizards who chafed under the limitations imposed upon them by government bureaucracy, Ulmyr’s Gate boasted free study for all mages who sought sanctuary within its walls. The Great College quickly became a lodestone for mages of every stripe from across the empire, and for a brief moment there existed a golden age of magic.
-
-That dream came crashing down one night when the founding mages of Ulmyr’s Gate attempted a massive conjuration ritual intended to part the veil and create a permanent portal to the Ethereal Plane. It didn’t work. Instead their magic caused a massive rift in the very fabric of reality, and in an instant the entire city tipped into the void between worlds. The entire city was presumed dead, the Arcanist Inquisition railed against the hubris of those tampering in things man was not meant to know, and life in the Empire moved on.
-
-However, people who disappeared with the city began to come back, mostly. They returned as [[Disembodied]].

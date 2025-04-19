@@ -1,3 +1,0 @@
-[[Soma]]
-___
-Crowsbend is a small fishing hamlet in the [[Soma]] region that sits in the last vestiges of the luscious green fields before reaching into [[The Black Mire]] towards the East. It is also one of the few towns the major road runs through between [[Soma]]'s major commercial routes, this is in thanks to [[Mayor Zardov]], who rumour has it made a great decision for his town at the cost of something he held dear.

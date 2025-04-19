@@ -1,1 +1,0 @@
-Voros is a small castle that sits near the border of Charnault and Castinella, here they train and recruit knights for the Grove knights from the nearby villages from both the religious Castinellans and the free Charnaulians. The Castinellan Provinces sanctions this to allow an alliance between the two factions.

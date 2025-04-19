@@ -1,5 +1,0 @@
-To the southeast of [[The Charneault Kingdom]] is a cursed place that no one approaches: Tol Kerdwyl, the Dead City. Here, skeletal trees feed off of poisoned waters, corrupted nature spirits are at their strongest, and the Dark Mist prevails over all. Tol Kerdwyl is the bastion of Thaelkinei, the Lich Princess.
-
-Centuries ago, Thalkinei was a sorceress whose beauty and power had no rival. She was discontent with this, so she sought terrible magic that would provide her with even greater power. The ritual she enacted gave her the ability to command reality itself.
-
-It took the combined might of all the elven sorcerers to stop the Lich Princess, and even then all they could do was make her fall into an endless slumber. While the world is safe from her, Tol Kerdwyl remains corrupted with evil magic. Only monsters and dark elves haunt its twisted forests and black springs.

@@ -1,2 +1,0 @@
-
-A marvellous demonstration of [[Morencia]]’s might, the Arsenal of [[Morencia]] serves as an example for other naval powers in [[Etharis]]. It occupies the main entrance to the city and serves as a filter for incoming vessels. The first part is a quarantine zone where crews and merchandise are stationed for forty days before being permitted inside [[Morencia]]. The second part shelters the arsenal itself, with the Morencian ships and shipyards.

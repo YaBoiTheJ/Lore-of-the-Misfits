@@ -1,1 +1,0 @@
-Camont is a small village that survives on the fishing from the nearby local rivers, it's people live a fairly peaceful life, but are wary for the mists and shifting forests that haunt them daily.

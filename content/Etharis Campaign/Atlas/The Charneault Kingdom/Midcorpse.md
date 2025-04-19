@@ -1,1 +1,0 @@
-Midcorpse lost their main source of income when a plague hit their crops. which turned the town toward superstition and started a crusade against witches and wizards.

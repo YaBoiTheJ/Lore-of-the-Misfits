@@ -1,2 +1,0 @@
-#region 
-Foolish sailors attempting to cross the Misty Reefs without the help of a Morencian guild navigator usually wander for days in the mist, only to end up at their starting point—if they aren’t wrecked on the treacherous reefs or run aground on a sandbank, that is. Tales of this magical, misty maze speak of moving sandbanks that make any traditional mapping pointless. How the members of the [[Navigators Guild]] find their way is one of the mysteries that feeds [[Morencia]]’s reputation.

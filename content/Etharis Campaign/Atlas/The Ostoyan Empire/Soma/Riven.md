@@ -1,2 +1,0 @@
-[[Soma]]
-The crevice city of Riven is most known for their strangely build city, namely a city build into the walls of a great v-shaped crevice. those who study the city of Riven will find out that they are the originators of black powder, created by mixing minerals they found in their deep mines for coal.

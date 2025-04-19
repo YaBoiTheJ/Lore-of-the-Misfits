@@ -1,2 +1,0 @@
-#region
-The Grove Maze is a range of wooded hills in the Northeastern corner of [[The Charneault Kingdom]] where adventurers easily get lost. It is said that the groves themselves move, while the rivers dry up or flood without warning.

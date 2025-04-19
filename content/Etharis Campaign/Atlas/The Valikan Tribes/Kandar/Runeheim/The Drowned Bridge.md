@@ -1,2 +1,0 @@
-[[Runeheim]]
-Approximately in the centre of the Pit, an old bridge crosses the river. Due to the bowl-like depression in which the Pit is situated, this bridge and the area around are flooded almost every time the sluice gate is opened by the guards at [[The Muck Gate]]. Those unlucky enough to find themselves on the bridge at the time risk drowning, hence the name of Drowned Bridge. Some distance further on, the river disappears through a small tunnel that crosses the town's ancient outer wall.

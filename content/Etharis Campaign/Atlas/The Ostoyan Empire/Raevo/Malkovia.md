@@ -1,2 +1,0 @@
-[[Raevo]]
-Malkovia is a small town that focuses on it's lumbermills and paper mill towards it's economy to create scrolls and books for the wizards of [[Castalore]], as well as training the few sorcerers here before they go off to learn magic either in [[Castalore]] or become grand wizards in the [[Ravencourt Sanctuary]] 

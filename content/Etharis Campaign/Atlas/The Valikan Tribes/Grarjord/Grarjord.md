@@ -1,2 +1,0 @@
-#region 
-[[The Valikan Tribes]]
