@@ -1,0 +1,2 @@
+[[The Ostoyan Empire]]
+Fallowheart is a military fortification placed by the Ostoyan council as the first Bulwark against any Bürach invasion, it's forces always on constant alert and extremely well trained not just because of the enemies on the western border, but also from the creatures that hide all around them in the forest.

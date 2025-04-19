@@ -1,0 +1,2 @@
+#landmark
+The heart of [[The Charneault Kingdom]] is studded with hills, between which countless rivers flow. Where hills suddenly give way to a valley, rivers will converge and form a lake that remains covered in mist for most of the year.

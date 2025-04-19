@@ -1,0 +1,2 @@
+[[Soma]]
+Voyd is a small mining town within the Soman region, it supplies the armies of [[Soma]] with it's steel veins that run through the land. It is also the birthplace of Lissandra, the founder of [[Castalore]].

@@ -1,0 +1,1 @@
+Landhaus is a major lumber village in [[Nordenland]], besides their trade of lumber for seige weapons they are also master fletchers and archers as they use the local woods to train and hone the skills of the Empire's best rangers.

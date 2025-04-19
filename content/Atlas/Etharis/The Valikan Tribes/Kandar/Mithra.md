@@ -1,0 +1,1 @@
+#valikan_clan 

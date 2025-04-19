@@ -1,0 +1,2 @@
+
+Besion is an old fort from the days before the [[2 Era of Expansion|Era of Expansion]] that separated the Dwarven Kingdom of [[Stehlenwald]] and the Elven City of [[Tol Leyemil]], now it trains a few elven garrisons for the city as well as some of the Grove knights as they prepare for if the day comes when the Ostoyans finally claim the Bürach Empire and begin to turn their gaze southward.

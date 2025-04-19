@@ -1,0 +1,1 @@
+Besion is a large hamlet that works with the local Dwarves that still reside in Stenhwald, their main commerce is the farms and wheat they grow in their fields in exchange for the dwarves tools and guns.

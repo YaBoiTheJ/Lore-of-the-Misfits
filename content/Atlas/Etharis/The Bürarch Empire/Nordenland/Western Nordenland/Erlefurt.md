@@ -1,0 +1,1 @@
+Erlefurt is the magical capital of [[Nordenland]], the denizens of the area all have a feel or gist for magic as it is abundant in the area, many great mages and wizards have studied at one of the academies of Erlefurt or at least visited the schools and felt the magic surging through the woods surrounding the city.

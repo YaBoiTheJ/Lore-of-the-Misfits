@@ -1,0 +1,2 @@
+[[Abendland]]
+The place known previously as [[Walstien]], was once infested with the disease known as [[Tears of the Hungerger]], a nightmarish concoction which morphs the infected into a zombie like state to destroy the infected. The confederation of archmages known as [[The Thaumaturge]], in a rare public act, gathered to cast a powerful spell and thus reduce to ash the entire city of [[Walstien]] that had been contaminated by the Tears.

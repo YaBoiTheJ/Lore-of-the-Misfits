@@ -1,0 +1,2 @@
+[[Runeheim]]
+Situated near the town entrance and just outside the Pit, the Sticky Stew (called “the Stink Eye Stew” by its detractors) is a low-grade inn that owes most of its business to low prices and its proximity to a town gate. Nonetheless the Sticky Stew is a place where people from all over cross paths, looking for a cheap meal or a cheap room after a harsh journey.

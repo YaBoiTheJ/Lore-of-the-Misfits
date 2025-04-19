@@ -1,0 +1,6 @@
+#city #castinella #province 
+Visitors entering [[The Castinellan Provinces]] by sea most likely enter through Faro. Located at the fork of the [[Salves River]], the harbor city of Faro projects their naval power not just in [[The Castinellan Provinces]] but across the whole continent.
+
+As the economic powerhouse of Castinella, Faro provides an enormous food supply for the Provinces, largely sourced from a superbly fertile land called the Blessing. With the fine produce from the Blessing’s farms, the bountiful fish from the Salves, and the presence of wild game from the surrounding forests, Faro has more than enough to feed its citizens and trade with other nations.
+
+The Farosi are great sailors, having traveled and traded throughout the continent. Those fortunate enough to be allowed into the Great Arsenal can witness how this massive shipyard constructs the ships that make up the Mighty Farosi Fleet. Those seeking work as sailors won’t find a better place to gain experience than serving in Faro’s navy.

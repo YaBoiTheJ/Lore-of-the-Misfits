@@ -1,0 +1,2 @@
+#city_of_liesech 
+The centre of [[Bite Bay]] has been mostly impassable to ships from time immemorial. In taverns, they tell stories of mermaids or other mystical sea creatures that repel human boats and capture any trespassers. The awful truth of [[The Filth Grazer]] is known by a few people only, including the late Bouwengracht family and the vampire Countess [[Analita Von Raiza]].

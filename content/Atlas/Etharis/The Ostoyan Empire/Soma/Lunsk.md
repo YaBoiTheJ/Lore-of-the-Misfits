@@ -1,0 +1,1 @@
+Lunsk is a small lumbertown, heavily guarded by the [[Crimson Court]], as they provide the province of [[Soma]] with most of their heavy lumber demand.

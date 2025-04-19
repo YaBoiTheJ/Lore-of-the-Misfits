@@ -1,0 +1,14 @@
+___
+Balancing at the fork of the [[Salves River]], thefortified city of [[Faro]] stands proudly to governand exploit the fertile area that hosts the greatharbors, where most of the powerful Castinellanfleet is built and maintained.
+
+### Faro, the Cliff City
+Eons of erosion have sculpted an impressivecliff at the fork of the Salves, providing the ideallocation for an impregnable fortress. The Farosi,as they call themselves, swiftly understood thattheir best way of defense was to control the river.Without a doubt, [[Faro]] is the most defensiblecity in all Castinella, maybe in all [[Etharis]]. Theriver provides a natural barrier on the west andnorth sides. The land to the south and east areso incredibly fertile that they are known as theBlessing. Moreover, the river and the nearby seaprovide an incredible proliferation of fish, so itis no surprise that the people of [[Faro]] becamemighty sailors and developed a close relationshipwith the sea.
+
+The [[Faro]] area used to be ruled by a councilof landowners, the landholders inside theBlessing carrying more weight in the decisionmakingprocess than those on the western andnorthern riversides. Decisions needed to gathertwo thirds of the votes to be enacted, alwaysmaking negotiations in the wake of wars verytense. Things have changed somewhat since theUnifier, though, and the Castinellan clergy nowholds a predominant position in the decisionmakingprocess.
+
+### Half in the Sea, Half in the Land
+The economy of [[Faro]] is flourishing, benefitting from both land and sea. Inside the Blessing, the southern lands are full of salt marshes and shellfish farming installations, while the northernlands grow various grains, fruits, and vegetable crops. Outside the Blessing, high forests occupy the riversides, with hunting providing the mainmeans of subsistence. This complete spectrum of food production creates good trade opportunities for the Farosi, while also allowing a total self-sufficiency in case of invasion, as long as the Mighty Fleet prevents invaders from entering the Blessing.
+
+### The Great Arsenals
+The Farosi relied on their naval capabilities tomaintain their independence in the centuriesbefore unification. Their naval superiority allowedthem to launch raids deep inside enemy territoryand prevent enemy fleets from attacking theBlessing from the sea. Since the unification, theFarosi Raiders are known as the Mighty Fleet.They dominate the Gulf of Lions, with traderoutes along everyshore of [[Etharis]]. These shipsare built in the Great Arsenals, which occupy mostof the riversides of the southern river branch,and have taken a heavy toll on the high forests.Moreover, this deforestation has leached thesoil and provoked landslides.The Farosi are aware ofthis and are tryingto regenerate the forests, but after the crushingdefeat of their attack against [[Morencia]], thereis no doubt that even more trees will be cut torebuild the Mighty Fleet.
+

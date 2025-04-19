@@ -1,0 +1,3 @@
+Fueled by a constant flow from the mines of the [[Corova Mountains]], the Ember Forge occupy a vast area just downstream of the city, half built on the river to allow easy access to the water required to quench their handiwork. The forges never stop, filling the entire area with constant noise and smoke that nearly suffocates the city when the winds blow upstream.
+
+Most of the forges’ production is dedicated to  [[The Castinellan Provinces]] themselves, mainly to the [[Faro]] arsenals and the military companies installed in [[Toletum]], but also to [[The Watchers of the Faithful]], whose growing numbers require more and more steel to launch operations all over [[Etharis]] against those who deviate from the true faith of the Divine Seraphs.
